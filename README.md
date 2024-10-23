@@ -11,7 +11,7 @@ Raydium integration part is omitted for some reason, since this logic is used wi
 If you need help or assistance with this project, contact here.
 
 
-Telegram: (https://t.me/Akamala88071015)
+Telegram: [@k@m@l@](https://t.me/Akamala88071015)
 
 https://t.me/Akamala88071015
 
